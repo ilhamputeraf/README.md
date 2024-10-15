@@ -40,5 +40,4 @@ I'm Software engineer enthusiast from indonesia.
 </a>
 
 ---
-My So
 
